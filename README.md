@@ -2,6 +2,6 @@
 
 我们近期将推出Minecraft领域[霜叶市]和一系列中世纪风格的建筑作品
 
-@SanFall_MCKD.qq.com加入我们
+@SanFall_MCKD@qq.com加入我们
 
 梦之安魂曲，极地不醒人
